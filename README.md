@@ -1,4 +1,4 @@
-chetansheel
+Vegas Casino
 ===========
 
-Chetansheel Yuwa's Phone app
+Vegas Casino's Phone app
